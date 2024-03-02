@@ -1,0 +1,1 @@
+Dear Mojang, I deeply apologize for making this without your consent, this repository was only made to preserve eaglercraft and i will take it down upon any request, i will not fight your DMCA takedowns whatsoever
